@@ -70,7 +70,7 @@ We encourage players and developers to engage with each other by sharing strateg
 
 To explore more about Higgs Domino RP and to get the most out of the platform, visit the official Higgs Domino RP website. Here, you’ll find updates, guides, and other valuable resources that will help you enjoy the game even more.
 
-For the official website and more information about the game, visit this [Higgs Domino RP official page](https://higgdominorp.id/).
+For the official website and more information about the game, [visit this Higgs Domino RP official page](https://higgdominorp.id/).
 
 Conclusion
 
